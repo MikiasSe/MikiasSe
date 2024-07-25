@@ -4,7 +4,8 @@
 - 💞️ I’m looking to collaborate on and web development and things that are related to the web.
 - 📫 How to reach me mikiasseife89@gmail.com
 - 😄 Pronouns: he/him.
-- ⚡ Fun fact: no fun fact for today.
+- ⚡ Fun fact:Don't take life too seriously you'll never get out of it alive😁.
+
 
 <!---
 MikiasSe/MikiasSe is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
